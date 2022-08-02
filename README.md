@@ -25,3 +25,7 @@ But God has another solution, that has evolved from the hood
 I present one who turns, the Fiasco to goodd
 
 The person that wrote and spoke this is Lupe Fiasco's sister, Ayesha Jaco. 
+
+
+
+My favorite person is Life California
