@@ -47,5 +47,9 @@ I present one who turns, the Fiasco to good
 The person that wrote and spoke this is Lupe Fiasco's sister, Ayesha Jaco. 
 
 
-# Calvin and Hobbles 
+# *Calvin and Hobble*
 Something else that's cool is Calvin and Hobbles. A cute lil comic book strip you can probably find on a newspaper. 
+![15E7DA62-3CB4-421D-B319-792ECD6BA974](https://user-images.githubusercontent.com/110420879/182445683-2676f7cd-7321-4f27-ba33-5ec28e43ff3e.jpeg)
+![F7C503D2-9924-4E1F-A46F-4239C147EB8A](https://user-images.githubusercontent.com/110420879/182445720-0bbfefcc-bec6-4d4d-b71a-12bf0a12052d.jpeg)
+![DF6389F4-146C-4772-8E7C-C7AEC5844958](https://user-images.githubusercontent.com/110420879/182446050-df70b0fd-5c22-4750-8f06-9d8d8741a5ce.jpeg)
+![74290506-6657-4B77-B1E8-338D5B62550A](https://user-images.githubusercontent.com/110420879/182445785-7a0a89e9-1525-446c-a047-06d077b8ef21.jpeg)
