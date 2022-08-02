@@ -1,6 +1,7 @@
 # Various Shit That I Like
 ### Solan Castro
 
+# *THE VERSE*
 one of my favorite verses in hip-hop doesn't even come from hip-hop artist, but I find it beautiful. 
 
 Food and liquor stores rest on every corner
@@ -44,7 +45,7 @@ But God has another solution, that has evolved from the hood
 I present one who turns, the Fiasco to good
 
 The person that wrote and spoke this is Lupe Fiasco's sister, Ayesha Jaco. 
- 
- 
- 
+
+
+# Calvin and Hobbles 
 Something else that's cool is Calvin and Hobbles. A cute lil comic book strip you can probably find on a newspaper. 
